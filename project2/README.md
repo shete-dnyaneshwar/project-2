@@ -1,2 +1,2 @@
 # My School name
-mmvp school in p.khand
+Brahmavally College Of Engineering Of Research Institute
